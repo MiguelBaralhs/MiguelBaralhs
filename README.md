@@ -6,4 +6,4 @@
 
 ### Você pode entrar em contato comigo: 00001128278935sp@al.educacao.sp.gov.br
 
-![](!Uploading Spas_vsederzhitel_sinay.jpg…)
+![](![Spas_vsederzhitel_sinay](https://github.com/user-attachments/assets/824f6f6e-b044-4731-81fd-5f9b6422080b))
